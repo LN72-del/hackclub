@@ -325,7 +325,7 @@ Want to use a different font? Google it!
 Want to add more pictures? Google it!  
 Want to add more text? Your entire life story? Background image? Background music? Video? More pages? Google it!
 
-A good way to get ideas for what to add to your website is to look at other people's websites. Find a website that you like, either from the below list or from somewhere else on the internet, pick one aspect of that website that you would like on your own website, and Google for ways to make it happen!
+A good way to get ideas for what to add to your website is to look at other people's websites. Find a website that you like, either from the below list or from somewhere else on the internet, pick one aspect of that website that you would like on your own website, and Googe for ways to make it happen!
 
 **Websites Made by Other Hack Club Hackers:**
 
